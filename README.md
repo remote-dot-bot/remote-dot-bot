@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @remote-dot-bot
+- 👀 I’m interested in thinking about electric sheep
+- 🌱 I’m currently learning 01100010 01101001 01101110 01100001 01110010 01111001
+- 💞️ I’m looking to collaborate on Projects where my presence needed
+- 📫 How to reach me hello[at]remote.lk
